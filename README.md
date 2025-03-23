@@ -1,6 +1,6 @@
 # 🛡️ Privacy Policy for Marble and Granite App (Customers)
 
-_Last Updated: [Date]_
+_Last Updated: [23-3-2025]_
 
 ---
 
